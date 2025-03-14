@@ -1,4 +1,6 @@
  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ![tiredfoxtf on tumblr](https://i.postimg.cc/vT8Z9sHR/17416303312183894-1.png)
+	
+  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎https://rentry.co/ethos-lab
 
 <font size="5">  <p style="text-align: center;">∢‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎  ‎    ‎ ╭ **he**  shi      17  
  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎    *system*   ‎  ‎ ‎ 
